@@ -1,2 +1,3 @@
-Hi, I am Michelle San Fillipo
-Genentech USA   Just signing in as a trial for this discussion board
+Hi Everyone, Welcome to the NJSCC Discussion Board.
+I am Michelle San Fillipo your representative with
+Genentech USA   I am  Just signing in as a trial to test out the new software.
